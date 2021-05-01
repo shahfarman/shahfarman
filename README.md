@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @shahfarman
+- 👀 I’m interested in doing bookkeeping, accounting
+- 🌱 I’m currently working on different projects related to bookkeeping
+- 📫 to reach me, i am on fiver as shahfarman691 and on upwork as shahfarman
